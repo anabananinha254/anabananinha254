@@ -2,3 +2,4 @@
 -:​🎮​gosto de jogos
 -:​📚​gosto de mangás
 -:🍣​🍙​gosto de comida japoneza
+-:🌊​gosto de praia
